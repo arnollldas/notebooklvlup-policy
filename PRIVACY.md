@@ -1,6 +1,6 @@
 # Privacy Policy – NotebookLVLUP
 
-**Last updated:** June 2026
+**Last updated:** June 25, 2026
 
 ---
 

@@ -1,6 +1,6 @@
 # Datenschutzerklärung – NotebookLVLUP
 
-**Stand:** Juni 2026
+**Stand:** 25. Juni 2026
 
 ---
 
