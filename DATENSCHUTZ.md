@@ -6,9 +6,7 @@
 
 ## 1. Verantwortlicher
 
-Arnoldas Schwab  
-[Straße und Hausnummer]  
-[PLZ und Stadt]  
+arnollldas  
 E-Mail: studio.tablet657@slmail.me
 
 ---

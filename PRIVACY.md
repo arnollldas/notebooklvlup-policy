@@ -6,9 +6,7 @@
 
 ## 1. Controller
 
-Arnoldas Schwab  
-[Street and house number]  
-[ZIP code and city]  
+arnollldas  
 Email: studio.tablet657@slmail.me
 
 ---
