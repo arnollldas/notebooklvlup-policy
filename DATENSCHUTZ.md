@@ -1,5 +1,7 @@
 # Datenschutzerklärung – NotebookLVLUP
 
+> 🇬🇧 English speaker? Read the [Privacy Policy in English](./PRIVACY.md).
+
 **Stand:** 25. Juni 2026
 
 ---

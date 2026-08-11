@@ -1,5 +1,7 @@
 # Privacy Policy – NotebookLVLUP
 
+> 🇩🇪 Deutschsprachig? Zur [Datenschutzerklärung auf Deutsch](./DATENSCHUTZ.md).
+
 **Last updated:** June 25, 2026
 
 ---
